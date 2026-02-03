@@ -1,0 +1,1 @@
+"📲 Buka HP, Cuan Ngalir! 💸 Cuma modal login harian di [Nama Apk], kamu bisa dapet saldo DANA/OVO gratis setiap hari. Bukan cuma janji, ini bukti! 🤑 Download & klaim bonus pengguna barumu sekarang! 👇 
